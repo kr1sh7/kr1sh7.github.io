@@ -1,0 +1,1 @@
+# kr1sh7.github.io
